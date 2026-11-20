@@ -1,3 +1,3 @@
-# ei stressiä
+# ei stressiä, ei paniikkia
 
 hdsabchsbhsdbgvcikjj
